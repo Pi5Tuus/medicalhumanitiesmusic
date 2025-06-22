@@ -22,7 +22,7 @@ The same disease is described in Sian Heder's 20121 film [*Coda*](yu_taehee.md).
 
 [Kenya Grace's "Only In My Mind](https://youtu.be/tqpqOzuRSks?si=NJSzV9NSQELlMWb5)" is an emotionally charged electro-pop track that revolves around themes of memory, love, and loss, expressing how connections between people continue in memory. The lyrics repeatedly mention "only in my mind," suggesting that things that are gone may no longer exist in reality, but they are always alive in memory. This sentiment fits the mood of a funeral—we can't bring back the lives of the dead, but their presence will live on in the hearts of those who loved them.
 
-#자신의 장례식에서 연주되길 희망하는 음악
+# 자신의 장례식에서 연주되길 희망하는 음악
 The melody of the song is gentle and deep, and the lyrics express the nostalgia and relief for the past. It is like a gentle farewell, allowing those attending the funeral to feel the peace of the deceased and their gratitude for them. I chose Kenya Grace's "Only In My Mind" as the music for the funeral because the song, with its soft and deep melody and the theme of memory and loss, perfectly expresses the meaning of love and memory that life is gone but love and memory are forever. The "only in my mind" in the lyrics symbolizes that the deceased has left but will always live in the hearts of relatives and friends. At the same time, the modern sense of the song also reflects personal taste and style. It brings peace and healing in sadness, allowing people to find the continuation of emotions in remembrance. It is a gentle and powerful farewell song.
 
 # 질환서사
